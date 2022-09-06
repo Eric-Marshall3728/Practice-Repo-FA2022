@@ -20,7 +20,7 @@ I am _passionate about_:
 
 - Gaming
 
-- Cybersecurity as show on this website <https://www.floridapoly.edu>
+- Cybersecurity as shown on this website <https://www.floridapoly.edu>
 
 ***
 
